@@ -1,1 +1,0 @@
-# e-emlak.gov.az
